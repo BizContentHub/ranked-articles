@@ -44,7 +44,7 @@ An experienced agency will understand:
 
 Growing companies usually need more than just a redesign. They need a strategy that increases traffic, leads, and conversions.
 
-A strong [web design agency Toronto](https://rankpals.com) business owners choose should understand:
+A strong [web design agency Toronto](https://digitalcomets.com/)) business owners choose should understand:
 - SEO
 - Conversion optimization
 - Website speed
